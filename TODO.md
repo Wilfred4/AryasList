@@ -1,2 +1,2 @@
-- Joffrey Baratheon
 - Cersei Lannister
+- La Montagne
